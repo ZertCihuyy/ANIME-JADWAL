@@ -1,32 +1,38 @@
 
-### 🕒 Live Update (Railway.app)
-**Sabtu, 14 Maret 2026 pukul 06:06 WIB**
+## 📅 JADWAL ANIME HARI INI
+*Update: SATURDAY*
 
-### 📺 Jadwal Anime Hari Ini (SATURDAY)
-- **Hoppe-chan: Sun Oukoku to Kuro Hoppe-dan no Himitsu** (TV)
-- **Jochum Season 2** (TV)
-- **Kagaku x Bouken Survival! 2nd Season** (TV)
-- **Shimajirou no Wow!** (TV)
-- **Kaijuu Sekai Seifuku (TV)** (TV)
-- **Cardfight!! Vanguard: Divinez Genma Seisen-hen** (TV)
-- **Omae wa Mada Gunma wo Shiranai: Reiwa-ban** (TV)
-
----
-*Update Otomatis: 7x Sehari*
-*Powered by [BACAYUKI](https://github.com/ZertCihuyy)*
-
-### 🕒 Live Update (Railway.app)
-**Sabtu, 14 Maret 2026 pukul 06:06 WIB**
-
-### 📺 Jadwal Anime Hari Ini (SATURDAY)
-- **Hoppe-chan: Sun Oukoku to Kuro Hoppe-dan no Himitsu** (TV)
-- **Jochum Season 2** (TV)
-- **Kagaku x Bouken Survival! 2nd Season** (TV)
-- **Shimajirou no Wow!** (TV)
-- **Kaijuu Sekai Seifuku (TV)** (TV)
-- **Cardfight!! Vanguard: Divinez Genma Seisen-hen** (TV)
-- **Omae wa Mada Gunma wo Shiranai: Reiwa-ban** (TV)
+- **Hoppe-chan: Sun Oukoku to Kuro Hoppe-dan no Himitsu**
+- **Jochum Season 2**
+- **Kagaku x Bouken Survival! 2nd Season**
+- **Shimajirou no Wow!**
+- **Kaijuu Sekai Seifuku (TV)**
+- **Cardfight!! Vanguard: Divinez Genma Seisen-hen**
+- **Omae wa Mada Gunma wo Shiranai: Reiwa-ban**
+- **Ninjala (TV)**
+- **Bonobono (TV 2016)**
+- **Ao no Miburo: Serizawa Ansatsu-hen**
 
 ---
-*Update Otomatis: 7x Sehari*
-*Powered by [BACAYUKI](https://github.com/ZertCihuyy)*
+🕒 **JAM UPDATE:** Sabtu, 14 Maret 2026 pukul 06:10 WIB
+🔄 *Otomatis update 7x sehari*
+
+
+## 📅 JADWAL ANIME HARI INI
+*Update: SATURDAY*
+
+- **Hoppe-chan: Sun Oukoku to Kuro Hoppe-dan no Himitsu**
+- **Jochum Season 2**
+- **Kagaku x Bouken Survival! 2nd Season**
+- **Shimajirou no Wow!**
+- **Kaijuu Sekai Seifuku (TV)**
+- **Cardfight!! Vanguard: Divinez Genma Seisen-hen**
+- **Omae wa Mada Gunma wo Shiranai: Reiwa-ban**
+- **Ninjala (TV)**
+- **Bonobono (TV 2016)**
+- **Ao no Miburo: Serizawa Ansatsu-hen**
+
+---
+🕒 **JAM UPDATE:** Sabtu, 14 Maret 2026 pukul 06:10 WIB
+🔄 *Otomatis update 7x sehari*
+
