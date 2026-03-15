@@ -1,38 +1,38 @@
 
 ## 📅 JADWAL ANIME HARI INI
-*Update: SATURDAY*
+*Update: SUNDAY*
 
-- **Hoppe-chan: Sun Oukoku to Kuro Hoppe-dan no Himitsu**
-- **Jochum Season 2**
-- **Kagaku x Bouken Survival! 2nd Season**
-- **Shimajirou no Wow!**
-- **Kaijuu Sekai Seifuku (TV)**
-- **Cardfight!! Vanguard: Divinez Genma Seisen-hen**
-- **Omae wa Mada Gunma wo Shiranai: Reiwa-ban**
-- **Ninjala (TV)**
-- **Bonobono (TV 2016)**
-- **Ao no Miburo: Serizawa Ansatsu-hen**
+- **Tomica to Tom (TV)**
+- **Sai-Kyo-Oh! Zukan: The Ultimate Tournament**
+- **Manul no Yuube**
+- **Himitsu no AiPri: Ring-hen**
+- **Meitantei Precure!**
+- **Koupen-chan**
+- **Hikuidori: Ushuu Boro Tobi-gumi**
+- **Princession Orchestra**
+- **Chibi Maruko-chan (1995)**
+- **SI-VIS: The Sound of Heroes**
 
 ---
-🕒 **JAM UPDATE:** Minggu, 15 Maret 2026 pukul 04:39 WIB
+🕒 **JAM UPDATE:** Minggu, 15 Maret 2026 pukul 07:00 WIB
 🔄 *Otomatis update 7x sehari*
 
 
 ## 📅 JADWAL ANIME HARI INI
-*Update: SATURDAY*
+*Update: SUNDAY*
 
-- **Hoppe-chan: Sun Oukoku to Kuro Hoppe-dan no Himitsu**
-- **Jochum Season 2**
-- **Kagaku x Bouken Survival! 2nd Season**
-- **Shimajirou no Wow!**
-- **Kaijuu Sekai Seifuku (TV)**
-- **Cardfight!! Vanguard: Divinez Genma Seisen-hen**
-- **Omae wa Mada Gunma wo Shiranai: Reiwa-ban**
-- **Ninjala (TV)**
-- **Bonobono (TV 2016)**
-- **Ao no Miburo: Serizawa Ansatsu-hen**
+- **Tomica to Tom (TV)**
+- **Sai-Kyo-Oh! Zukan: The Ultimate Tournament**
+- **Manul no Yuube**
+- **Himitsu no AiPri: Ring-hen**
+- **Meitantei Precure!**
+- **Koupen-chan**
+- **Hikuidori: Ushuu Boro Tobi-gumi**
+- **Princession Orchestra**
+- **Chibi Maruko-chan (1995)**
+- **SI-VIS: The Sound of Heroes**
 
 ---
-🕒 **JAM UPDATE:** Minggu, 15 Maret 2026 pukul 04:39 WIB
+🕒 **JAM UPDATE:** Minggu, 15 Maret 2026 pukul 07:00 WIB
 🔄 *Otomatis update 7x sehari*
 
