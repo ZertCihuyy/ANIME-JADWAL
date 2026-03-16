@@ -14,7 +14,7 @@
 - **Himesama "Goumon" no Jikan desu 2nd Season**
 
 ---
-🕒 **JAM UPDATE:** Selasa, 17 Maret 2026 pukul 01:00 WIB
+🕒 **JAM UPDATE:** Selasa, 17 Maret 2026 pukul 04:00 WIB
 🔄 *Otomatis update 7x sehari*
 
 
@@ -33,6 +33,6 @@
 - **Himesama "Goumon" no Jikan desu 2nd Season**
 
 ---
-🕒 **JAM UPDATE:** Selasa, 17 Maret 2026 pukul 01:00 WIB
+🕒 **JAM UPDATE:** Selasa, 17 Maret 2026 pukul 04:00 WIB
 🔄 *Otomatis update 7x sehari*
 
