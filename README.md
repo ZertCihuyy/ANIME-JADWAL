@@ -13,7 +13,7 @@
 - **Chitose-kun wa Ramune Bin no Naka**
 
 ---
-🕒 **JAM UPDATE:** Selasa, 17 Maret 2026 pukul 07:00 WIB
+🕒 **JAM UPDATE:** Selasa, 17 Maret 2026 pukul 10:00 WIB
 🔄 *Otomatis update 7x sehari*
 
 
@@ -31,6 +31,6 @@
 - **Chitose-kun wa Ramune Bin no Naka**
 
 ---
-🕒 **JAM UPDATE:** Selasa, 17 Maret 2026 pukul 07:00 WIB
+🕒 **JAM UPDATE:** Selasa, 17 Maret 2026 pukul 10:00 WIB
 🔄 *Otomatis update 7x sehari*
 
