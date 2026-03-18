@@ -1,36 +1,36 @@
 
 ## 📅 JADWAL ANIME HARI INI
-*Update: TUESDAY*
+*Update: WEDNESDAY*
 
-- **Origami Ninja Koyankinte**
-- **Fushigi Dagashiya: Zenitendou**
-- **Saioshi no Gikei wo Mederu Tame, Nagaiki shimasu!**
-- **Yoroi Shin Den Samurai Troopers**
-- **Osananajimi to wa Love Comedy ni Naranai**
-- **Isekai no Sata wa Shachiku Shidai**
-- **Mayonaka Heart Tune**
-- **Yuusha Party ni Kawaii Ko ga Ita node, Kokuhaku shitemita.**
-- **Chitose-kun wa Ramune Bin no Naka**
+- **Gelpiyo**
+- **Chibi Godzilla no Gyakushuu 3rd Season**
+- **Pochars**
+- **Jigoku Sensei Nube (2025) Part 2**
+- **Arne no Jikenbo**
+- **29-sai Dokushin Chuuken Boukensha no Nichijou**
+- **Darwin Jihen**
+- **Shibou Yuugi de Meshi wo Kuu.**
+- **[Oshi no Ko] 3rd Season**
 
 ---
-🕒 **JAM UPDATE:** Rabu, 18 Maret 2026 pukul 04:00 WIB
+🕒 **JAM UPDATE:** Rabu, 18 Maret 2026 pukul 07:00 WIB
 🔄 *Otomatis update 7x sehari*
 
 
 ## 📅 JADWAL ANIME HARI INI
-*Update: TUESDAY*
+*Update: WEDNESDAY*
 
-- **Origami Ninja Koyankinte**
-- **Fushigi Dagashiya: Zenitendou**
-- **Saioshi no Gikei wo Mederu Tame, Nagaiki shimasu!**
-- **Yoroi Shin Den Samurai Troopers**
-- **Osananajimi to wa Love Comedy ni Naranai**
-- **Isekai no Sata wa Shachiku Shidai**
-- **Mayonaka Heart Tune**
-- **Yuusha Party ni Kawaii Ko ga Ita node, Kokuhaku shitemita.**
-- **Chitose-kun wa Ramune Bin no Naka**
+- **Gelpiyo**
+- **Chibi Godzilla no Gyakushuu 3rd Season**
+- **Pochars**
+- **Jigoku Sensei Nube (2025) Part 2**
+- **Arne no Jikenbo**
+- **29-sai Dokushin Chuuken Boukensha no Nichijou**
+- **Darwin Jihen**
+- **Shibou Yuugi de Meshi wo Kuu.**
+- **[Oshi no Ko] 3rd Season**
 
 ---
-🕒 **JAM UPDATE:** Rabu, 18 Maret 2026 pukul 04:00 WIB
+🕒 **JAM UPDATE:** Rabu, 18 Maret 2026 pukul 07:00 WIB
 🔄 *Otomatis update 7x sehari*
 
