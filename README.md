@@ -9,11 +9,10 @@
 - **Arne no Jikenbo**
 - **29-sai Dokushin Chuuken Boukensha no Nichijou**
 - **Darwin Jihen**
-- **Shibou Yuugi de Meshi wo Kuu.**
 - **[Oshi no Ko] 3rd Season**
 
 ---
-🕒 **JAM UPDATE:** Kamis, 19 Maret 2026 pukul 01:00 WIB
+🕒 **JAM UPDATE:** Kamis, 19 Maret 2026 pukul 04:00 WIB
 🔄 *Otomatis update 7x sehari*
 
 
@@ -27,10 +26,9 @@
 - **Arne no Jikenbo**
 - **29-sai Dokushin Chuuken Boukensha no Nichijou**
 - **Darwin Jihen**
-- **Shibou Yuugi de Meshi wo Kuu.**
 - **[Oshi no Ko] 3rd Season**
 
 ---
-🕒 **JAM UPDATE:** Kamis, 19 Maret 2026 pukul 01:00 WIB
+🕒 **JAM UPDATE:** Kamis, 19 Maret 2026 pukul 04:00 WIB
 🔄 *Otomatis update 7x sehari*
 
