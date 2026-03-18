@@ -13,7 +13,7 @@
 - **[Oshi no Ko] 3rd Season**
 
 ---
-🕒 **JAM UPDATE:** Rabu, 18 Maret 2026 pukul 07:00 WIB
+🕒 **JAM UPDATE:** Rabu, 18 Maret 2026 pukul 10:00 WIB
 🔄 *Otomatis update 7x sehari*
 
 
@@ -31,6 +31,6 @@
 - **[Oshi no Ko] 3rd Season**
 
 ---
-🕒 **JAM UPDATE:** Rabu, 18 Maret 2026 pukul 07:00 WIB
+🕒 **JAM UPDATE:** Rabu, 18 Maret 2026 pukul 10:00 WIB
 🔄 *Otomatis update 7x sehari*
 
