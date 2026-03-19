@@ -12,7 +12,7 @@
 - **Yuusha-kei ni Shosu: Choubatsu Yuusha 9004-tai Keimu Kiroku**
 
 ---
-🕒 **JAM UPDATE:** Kamis, 19 Maret 2026 pukul 19:00 WIB
+🕒 **JAM UPDATE:** Kamis, 19 Maret 2026 pukul 22:00 WIB
 🔄 *Otomatis update 7x sehari*
 
 
@@ -29,6 +29,6 @@
 - **Yuusha-kei ni Shosu: Choubatsu Yuusha 9004-tai Keimu Kiroku**
 
 ---
-🕒 **JAM UPDATE:** Kamis, 19 Maret 2026 pukul 19:00 WIB
+🕒 **JAM UPDATE:** Kamis, 19 Maret 2026 pukul 22:00 WIB
 🔄 *Otomatis update 7x sehari*
 
