@@ -1,34 +1,38 @@
 
 ## 📅 JADWAL ANIME HARI INI
-*Update: THURSDAY*
+*Update: FRIDAY*
 
-- **Metal Cardbot W**
-- **Metal Cardbot W**
-- **Odayaka Kizoku no Kyuuka no Susume.**
-- **Toumei Otoko to Ningen Onna: Sonouchi Fuufu ni Naru Futari**
-- **Eris no Seihai**
-- **Kizoku Tensei: Megumareta Umare kara Saikyou no Chikara wo Eru**
-- **Mato Seihei no Slave 2**
-- **Yuusha-kei ni Shosu: Choubatsu Yuusha 9004-tai Keimu Kiroku**
+- **High School! Kimengumi (2026)**
+- **Sore Ike! Anpanman**
+- **Beyblade X**
+- **Ganglion**
+- **Douse, Koishite Shimaunda. 2nd Season**
+- **Chiikawa**
+- **Doraemon (2005)**
+- **"Omae Gotoki ga Maou ni Kateru to Omouna" to Yuusha Party wo Tsuihou sareta node, Outo de Kimama ni Kurashitai**
+- **Pokemon (2023)**
+- **Crayon Shin-chan**
 
 ---
-🕒 **JAM UPDATE:** Jumat, 20 Maret 2026 pukul 04:00 WIB
+🕒 **JAM UPDATE:** Jumat, 20 Maret 2026 pukul 07:00 WIB
 🔄 *Otomatis update 7x sehari*
 
 
 ## 📅 JADWAL ANIME HARI INI
-*Update: THURSDAY*
+*Update: FRIDAY*
 
-- **Metal Cardbot W**
-- **Metal Cardbot W**
-- **Odayaka Kizoku no Kyuuka no Susume.**
-- **Toumei Otoko to Ningen Onna: Sonouchi Fuufu ni Naru Futari**
-- **Eris no Seihai**
-- **Kizoku Tensei: Megumareta Umare kara Saikyou no Chikara wo Eru**
-- **Mato Seihei no Slave 2**
-- **Yuusha-kei ni Shosu: Choubatsu Yuusha 9004-tai Keimu Kiroku**
+- **High School! Kimengumi (2026)**
+- **Sore Ike! Anpanman**
+- **Beyblade X**
+- **Ganglion**
+- **Douse, Koishite Shimaunda. 2nd Season**
+- **Chiikawa**
+- **Doraemon (2005)**
+- **"Omae Gotoki ga Maou ni Kateru to Omouna" to Yuusha Party wo Tsuihou sareta node, Outo de Kimama ni Kurashitai**
+- **Pokemon (2023)**
+- **Crayon Shin-chan**
 
 ---
-🕒 **JAM UPDATE:** Jumat, 20 Maret 2026 pukul 04:00 WIB
+🕒 **JAM UPDATE:** Jumat, 20 Maret 2026 pukul 07:00 WIB
 🔄 *Otomatis update 7x sehari*
 
