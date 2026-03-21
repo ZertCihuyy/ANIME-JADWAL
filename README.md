@@ -1,38 +1,38 @@
 
 ## 📅 JADWAL ANIME HARI INI
-*Update: FRIDAY*
+*Update: SATURDAY*
 
-- **High School! Kimengumi (2026)**
-- **Sore Ike! Anpanman**
-- **Beyblade X**
-- **Ganglion**
-- **Douse, Koishite Shimaunda. 2nd Season**
-- **Chiikawa**
-- **Doraemon (2005)**
-- **"Omae Gotoki ga Maou ni Kateru to Omouna" to Yuusha Party wo Tsuihou sareta node, Outo de Kimama ni Kurashitai**
-- **Pokemon (2023)**
-- **Crayon Shin-chan**
+- **Hoppe-chan: Sun Oukoku to Kuro Hoppe-dan no Himitsu**
+- **Jochum Season 2**
+- **Shimajirou no Wow!**
+- **Kaijuu Sekai Seifuku (TV)**
+- **Cardfight!! Vanguard: Divinez Genma Seisen-hen**
+- **Ninjala (TV)**
+- **Bonobono (TV 2016)**
+- **Ao no Miburo: Serizawa Ansatsu-hen**
+- **Dark Moon: Tsuki no Saidan**
+- **Tensei shitara Dragon no Tamago datta**
 
 ---
-🕒 **JAM UPDATE:** Sabtu, 21 Maret 2026 pukul 04:00 WIB
+🕒 **JAM UPDATE:** Sabtu, 21 Maret 2026 pukul 07:00 WIB
 🔄 *Otomatis update 7x sehari*
 
 
 ## 📅 JADWAL ANIME HARI INI
-*Update: FRIDAY*
+*Update: SATURDAY*
 
-- **High School! Kimengumi (2026)**
-- **Sore Ike! Anpanman**
-- **Beyblade X**
-- **Ganglion**
-- **Douse, Koishite Shimaunda. 2nd Season**
-- **Chiikawa**
-- **Doraemon (2005)**
-- **"Omae Gotoki ga Maou ni Kateru to Omouna" to Yuusha Party wo Tsuihou sareta node, Outo de Kimama ni Kurashitai**
-- **Pokemon (2023)**
-- **Crayon Shin-chan**
+- **Hoppe-chan: Sun Oukoku to Kuro Hoppe-dan no Himitsu**
+- **Jochum Season 2**
+- **Shimajirou no Wow!**
+- **Kaijuu Sekai Seifuku (TV)**
+- **Cardfight!! Vanguard: Divinez Genma Seisen-hen**
+- **Ninjala (TV)**
+- **Bonobono (TV 2016)**
+- **Ao no Miburo: Serizawa Ansatsu-hen**
+- **Dark Moon: Tsuki no Saidan**
+- **Tensei shitara Dragon no Tamago datta**
 
 ---
-🕒 **JAM UPDATE:** Sabtu, 21 Maret 2026 pukul 04:00 WIB
+🕒 **JAM UPDATE:** Sabtu, 21 Maret 2026 pukul 07:00 WIB
 🔄 *Otomatis update 7x sehari*
 
