@@ -14,7 +14,7 @@
 - **Dead Account**
 
 ---
-🕒 **JAM UPDATE:** Sabtu, 21 Maret 2026 pukul 22:00 WIB
+🕒 **JAM UPDATE:** Minggu, 22 Maret 2026 pukul 01:00 WIB
 🔄 *Otomatis update 7x sehari*
 
 
@@ -33,6 +33,6 @@
 - **Dead Account**
 
 ---
-🕒 **JAM UPDATE:** Sabtu, 21 Maret 2026 pukul 22:00 WIB
+🕒 **JAM UPDATE:** Minggu, 22 Maret 2026 pukul 01:00 WIB
 🔄 *Otomatis update 7x sehari*
 
