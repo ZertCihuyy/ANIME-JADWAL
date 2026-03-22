@@ -14,7 +14,7 @@
 - **SI-VIS: The Sound of Heroes**
 
 ---
-🕒 **JAM UPDATE:** Minggu, 22 Maret 2026 pukul 10:00 WIB
+🕒 **JAM UPDATE:** Minggu, 22 Maret 2026 pukul 13:00 WIB
 🔄 *Otomatis update 7x sehari*
 
 
@@ -33,6 +33,6 @@
 - **SI-VIS: The Sound of Heroes**
 
 ---
-🕒 **JAM UPDATE:** Minggu, 22 Maret 2026 pukul 10:00 WIB
+🕒 **JAM UPDATE:** Minggu, 22 Maret 2026 pukul 13:00 WIB
 🔄 *Otomatis update 7x sehari*
 
