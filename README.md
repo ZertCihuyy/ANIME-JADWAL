@@ -14,7 +14,7 @@
 - **Kirei ni Shitemoraemasu ka.**
 
 ---
-🕒 **JAM UPDATE:** Senin, 23 Maret 2026 pukul 13:00 WIB
+🕒 **JAM UPDATE:** Senin, 23 Maret 2026 pukul 16:00 WIB
 🔄 *Otomatis update 7x sehari*
 
 
@@ -33,6 +33,6 @@
 - **Kirei ni Shitemoraemasu ka.**
 
 ---
-🕒 **JAM UPDATE:** Senin, 23 Maret 2026 pukul 13:00 WIB
+🕒 **JAM UPDATE:** Senin, 23 Maret 2026 pukul 16:00 WIB
 🔄 *Otomatis update 7x sehari*
 
