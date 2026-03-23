@@ -1,38 +1,38 @@
 
 ## 📅 JADWAL ANIME HARI INI
-*Update: SUNDAY*
+*Update: MONDAY*
 
-- **Tomica to Tom (TV)**
-- **Sai-Kyo-Oh! Zukan: The Ultimate Tournament**
-- **Manul no Yuube**
-- **Himitsu no AiPri: Ring-hen**
-- **Meitantei Precure!**
-- **Koupen-chan**
-- **Hikuidori: Ushuu Boro Tobi-gumi**
-- **Princession Orchestra**
-- **Chibi Maruko-chan (1995)**
-- **SI-VIS: The Sound of Heroes**
+- **Uso Tantei Tomanto**
+- **Shin Nippon History**
+- **Hokuto no Ken: Kenougun Zako-tachi no Banka**
+- **Hokuto no Ken: Kenougun Zako-tachi no Banka**
+- **Puzzle & Dragon**
+- **Yami Shibai 16**
+- **Yami Shibai 16**
+- **Niwatori Fighter**
+- **Himesama "Goumon" no Jikan desu 2nd Season**
+- **Kirei ni Shitemoraemasu ka.**
 
 ---
-🕒 **JAM UPDATE:** Senin, 23 Maret 2026 pukul 04:00 WIB
+🕒 **JAM UPDATE:** Senin, 23 Maret 2026 pukul 07:00 WIB
 🔄 *Otomatis update 7x sehari*
 
 
 ## 📅 JADWAL ANIME HARI INI
-*Update: SUNDAY*
+*Update: MONDAY*
 
-- **Tomica to Tom (TV)**
-- **Sai-Kyo-Oh! Zukan: The Ultimate Tournament**
-- **Manul no Yuube**
-- **Himitsu no AiPri: Ring-hen**
-- **Meitantei Precure!**
-- **Koupen-chan**
-- **Hikuidori: Ushuu Boro Tobi-gumi**
-- **Princession Orchestra**
-- **Chibi Maruko-chan (1995)**
-- **SI-VIS: The Sound of Heroes**
+- **Uso Tantei Tomanto**
+- **Shin Nippon History**
+- **Hokuto no Ken: Kenougun Zako-tachi no Banka**
+- **Hokuto no Ken: Kenougun Zako-tachi no Banka**
+- **Puzzle & Dragon**
+- **Yami Shibai 16**
+- **Yami Shibai 16**
+- **Niwatori Fighter**
+- **Himesama "Goumon" no Jikan desu 2nd Season**
+- **Kirei ni Shitemoraemasu ka.**
 
 ---
-🕒 **JAM UPDATE:** Senin, 23 Maret 2026 pukul 04:00 WIB
+🕒 **JAM UPDATE:** Senin, 23 Maret 2026 pukul 07:00 WIB
 🔄 *Otomatis update 7x sehari*
 
