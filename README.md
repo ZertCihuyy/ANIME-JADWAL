@@ -8,10 +8,9 @@
 - **Jigoku Sensei Nube (2025) Part 2**
 - **29-sai Dokushin Chuuken Boukensha no Nichijou**
 - **Darwin Jihen**
-- **[Oshi no Ko] 3rd Season**
 
 ---
-🕒 **JAM UPDATE:** Kamis, 26 Maret 2026 pukul 01:00 WIB
+🕒 **JAM UPDATE:** Kamis, 26 Maret 2026 pukul 04:00 WIB
 🔄 *Otomatis update 7x sehari*
 
 
@@ -24,9 +23,8 @@
 - **Jigoku Sensei Nube (2025) Part 2**
 - **29-sai Dokushin Chuuken Boukensha no Nichijou**
 - **Darwin Jihen**
-- **[Oshi no Ko] 3rd Season**
 
 ---
-🕒 **JAM UPDATE:** Kamis, 26 Maret 2026 pukul 01:00 WIB
+🕒 **JAM UPDATE:** Kamis, 26 Maret 2026 pukul 04:00 WIB
 🔄 *Otomatis update 7x sehari*
 
