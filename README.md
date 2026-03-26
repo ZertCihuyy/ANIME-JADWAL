@@ -9,7 +9,7 @@
 - **Mato Seihei no Slave 2**
 
 ---
-🕒 **JAM UPDATE:** Kamis, 26 Maret 2026 pukul 22:00 WIB
+🕒 **JAM UPDATE:** Jumat, 27 Maret 2026 pukul 01:00 WIB
 🔄 *Otomatis update 7x sehari*
 
 
@@ -23,6 +23,6 @@
 - **Mato Seihei no Slave 2**
 
 ---
-🕒 **JAM UPDATE:** Kamis, 26 Maret 2026 pukul 22:00 WIB
+🕒 **JAM UPDATE:** Jumat, 27 Maret 2026 pukul 01:00 WIB
 🔄 *Otomatis update 7x sehari*
 
