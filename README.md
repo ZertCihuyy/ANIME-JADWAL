@@ -14,7 +14,7 @@
 - **Jujutsu Kaisen: Shimetsu Kaiyuu - Zenpen**
 
 ---
-🕒 **JAM UPDATE:** Jumat, 27 Maret 2026 pukul 07:00 WIB
+🕒 **JAM UPDATE:** Jumat, 27 Maret 2026 pukul 10:00 WIB
 🔄 *Otomatis update 7x sehari*
 
 
@@ -33,6 +33,6 @@
 - **Jujutsu Kaisen: Shimetsu Kaiyuu - Zenpen**
 
 ---
-🕒 **JAM UPDATE:** Jumat, 27 Maret 2026 pukul 07:00 WIB
+🕒 **JAM UPDATE:** Jumat, 27 Maret 2026 pukul 10:00 WIB
 🔄 *Otomatis update 7x sehari*
 
