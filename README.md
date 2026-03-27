@@ -14,7 +14,7 @@
 - **Sousou no Frieren 2nd Season**
 
 ---
-🕒 **JAM UPDATE:** Jumat, 27 Maret 2026 pukul 13:00 WIB
+🕒 **JAM UPDATE:** Jumat, 27 Maret 2026 pukul 16:00 WIB
 🔄 *Otomatis update 7x sehari*
 
 
@@ -33,6 +33,6 @@
 - **Sousou no Frieren 2nd Season**
 
 ---
-🕒 **JAM UPDATE:** Jumat, 27 Maret 2026 pukul 13:00 WIB
+🕒 **JAM UPDATE:** Jumat, 27 Maret 2026 pukul 16:00 WIB
 🔄 *Otomatis update 7x sehari*
 
