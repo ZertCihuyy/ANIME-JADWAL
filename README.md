@@ -10,11 +10,10 @@
 - **Doraemon (2005)**
 - **Pokemon (2023)**
 - **Crayon Shin-chan**
-- **Jujutsu Kaisen: Shimetsu Kaiyuu - Zenpen**
 - **Sousou no Frieren 2nd Season**
 
 ---
-🕒 **JAM UPDATE:** Jumat, 27 Maret 2026 pukul 19:00 WIB
+🕒 **JAM UPDATE:** Sabtu, 28 Maret 2026 pukul 01:00 WIB
 🔄 *Otomatis update 7x sehari*
 
 
@@ -29,10 +28,9 @@
 - **Doraemon (2005)**
 - **Pokemon (2023)**
 - **Crayon Shin-chan**
-- **Jujutsu Kaisen: Shimetsu Kaiyuu - Zenpen**
 - **Sousou no Frieren 2nd Season**
 
 ---
-🕒 **JAM UPDATE:** Jumat, 27 Maret 2026 pukul 19:00 WIB
+🕒 **JAM UPDATE:** Sabtu, 28 Maret 2026 pukul 01:00 WIB
 🔄 *Otomatis update 7x sehari*
 
