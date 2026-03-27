@@ -8,13 +8,13 @@
 - **Ganglion**
 - **Chiikawa**
 - **Doraemon (2005)**
-- **"Omae Gotoki ga Maou ni Kateru to Omouna" to Yuusha Party wo Tsuihou sareta node, Outo de Kimama ni Kurashitai**
 - **Pokemon (2023)**
 - **Crayon Shin-chan**
 - **Jujutsu Kaisen: Shimetsu Kaiyuu - Zenpen**
+- **Sousou no Frieren 2nd Season**
 
 ---
-🕒 **JAM UPDATE:** Jumat, 27 Maret 2026 pukul 10:00 WIB
+🕒 **JAM UPDATE:** Jumat, 27 Maret 2026 pukul 13:00 WIB
 🔄 *Otomatis update 7x sehari*
 
 
@@ -27,12 +27,12 @@
 - **Ganglion**
 - **Chiikawa**
 - **Doraemon (2005)**
-- **"Omae Gotoki ga Maou ni Kateru to Omouna" to Yuusha Party wo Tsuihou sareta node, Outo de Kimama ni Kurashitai**
 - **Pokemon (2023)**
 - **Crayon Shin-chan**
 - **Jujutsu Kaisen: Shimetsu Kaiyuu - Zenpen**
+- **Sousou no Frieren 2nd Season**
 
 ---
-🕒 **JAM UPDATE:** Jumat, 27 Maret 2026 pukul 10:00 WIB
+🕒 **JAM UPDATE:** Jumat, 27 Maret 2026 pukul 13:00 WIB
 🔄 *Otomatis update 7x sehari*
 
