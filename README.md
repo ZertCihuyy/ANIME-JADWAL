@@ -1,36 +1,38 @@
 
 ## 📅 JADWAL ANIME HARI INI
-*Update: FRIDAY*
+*Update: SATURDAY*
 
-- **High School! Kimengumi (2026)**
-- **Sore Ike! Anpanman**
-- **Beyblade X**
-- **Ganglion**
-- **Chiikawa**
-- **Doraemon (2005)**
-- **Pokemon (2023)**
-- **Crayon Shin-chan**
-- **Sousou no Frieren 2nd Season**
+- **Hoppe-chan: Sun Oukoku to Kuro Hoppe-dan no Himitsu**
+- **Shimajirou no Wow!**
+- **Cardfight!! Vanguard: Divinez Genma Seisen-hen**
+- **Ninjala (TV)**
+- **Bonobono (TV 2016)**
+- **Ao no Miburo: Serizawa Ansatsu-hen**
+- **Tensei shitara Dragon no Tamago datta**
+- **Dead Account**
+- **Hell Mode: Yarikomizuki no Gamer wa Hai Settei no Isekai de Musou suru**
+- **Trigun Stargaze**
 
 ---
-🕒 **JAM UPDATE:** Sabtu, 28 Maret 2026 pukul 04:00 WIB
+🕒 **JAM UPDATE:** Sabtu, 28 Maret 2026 pukul 07:00 WIB
 🔄 *Otomatis update 7x sehari*
 
 
 ## 📅 JADWAL ANIME HARI INI
-*Update: FRIDAY*
+*Update: SATURDAY*
 
-- **High School! Kimengumi (2026)**
-- **Sore Ike! Anpanman**
-- **Beyblade X**
-- **Ganglion**
-- **Chiikawa**
-- **Doraemon (2005)**
-- **Pokemon (2023)**
-- **Crayon Shin-chan**
-- **Sousou no Frieren 2nd Season**
+- **Hoppe-chan: Sun Oukoku to Kuro Hoppe-dan no Himitsu**
+- **Shimajirou no Wow!**
+- **Cardfight!! Vanguard: Divinez Genma Seisen-hen**
+- **Ninjala (TV)**
+- **Bonobono (TV 2016)**
+- **Ao no Miburo: Serizawa Ansatsu-hen**
+- **Tensei shitara Dragon no Tamago datta**
+- **Dead Account**
+- **Hell Mode: Yarikomizuki no Gamer wa Hai Settei no Isekai de Musou suru**
+- **Trigun Stargaze**
 
 ---
-🕒 **JAM UPDATE:** Sabtu, 28 Maret 2026 pukul 04:00 WIB
+🕒 **JAM UPDATE:** Sabtu, 28 Maret 2026 pukul 07:00 WIB
 🔄 *Otomatis update 7x sehari*
 
