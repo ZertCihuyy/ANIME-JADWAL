@@ -14,7 +14,7 @@
 - **Trigun Stargaze**
 
 ---
-🕒 **JAM UPDATE:** Sabtu, 28 Maret 2026 pukul 07:00 WIB
+🕒 **JAM UPDATE:** Sabtu, 28 Maret 2026 pukul 10:00 WIB
 🔄 *Otomatis update 7x sehari*
 
 
@@ -33,6 +33,6 @@
 - **Trigun Stargaze**
 
 ---
-🕒 **JAM UPDATE:** Sabtu, 28 Maret 2026 pukul 07:00 WIB
+🕒 **JAM UPDATE:** Sabtu, 28 Maret 2026 pukul 10:00 WIB
 🔄 *Otomatis update 7x sehari*
 
