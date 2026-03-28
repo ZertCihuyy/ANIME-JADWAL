@@ -9,12 +9,12 @@
 - **Ao no Miburo: Serizawa Ansatsu-hen**
 - **Tensei shitara Dragon no Tamago datta**
 - **Dead Account**
-- **Hell Mode: Yarikomizuki no Gamer wa Hai Settei no Isekai de Musou suru**
 - **Trigun Stargaze**
 - **Fumetsu no Anata e Season 3**
+- **Fate/strange Fake**
 
 ---
-🕒 **JAM UPDATE:** Sabtu, 28 Maret 2026 pukul 22:00 WIB
+🕒 **JAM UPDATE:** Minggu, 29 Maret 2026 pukul 01:00 WIB
 🔄 *Otomatis update 7x sehari*
 
 
@@ -28,11 +28,11 @@
 - **Ao no Miburo: Serizawa Ansatsu-hen**
 - **Tensei shitara Dragon no Tamago datta**
 - **Dead Account**
-- **Hell Mode: Yarikomizuki no Gamer wa Hai Settei no Isekai de Musou suru**
 - **Trigun Stargaze**
 - **Fumetsu no Anata e Season 3**
+- **Fate/strange Fake**
 
 ---
-🕒 **JAM UPDATE:** Sabtu, 28 Maret 2026 pukul 22:00 WIB
+🕒 **JAM UPDATE:** Minggu, 29 Maret 2026 pukul 01:00 WIB
 🔄 *Otomatis update 7x sehari*
 
