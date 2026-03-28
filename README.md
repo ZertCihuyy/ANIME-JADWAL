@@ -11,10 +11,10 @@
 - **Dead Account**
 - **Trigun Stargaze**
 - **Fumetsu no Anata e Season 3**
-- **Fate/strange Fake**
+- **Enen no Shouboutai: San no Shou Part 2**
 
 ---
-🕒 **JAM UPDATE:** Minggu, 29 Maret 2026 pukul 01:00 WIB
+🕒 **JAM UPDATE:** Minggu, 29 Maret 2026 pukul 04:00 WIB
 🔄 *Otomatis update 7x sehari*
 
 
@@ -30,9 +30,9 @@
 - **Dead Account**
 - **Trigun Stargaze**
 - **Fumetsu no Anata e Season 3**
-- **Fate/strange Fake**
+- **Enen no Shouboutai: San no Shou Part 2**
 
 ---
-🕒 **JAM UPDATE:** Minggu, 29 Maret 2026 pukul 01:00 WIB
+🕒 **JAM UPDATE:** Minggu, 29 Maret 2026 pukul 04:00 WIB
 🔄 *Otomatis update 7x sehari*
 
