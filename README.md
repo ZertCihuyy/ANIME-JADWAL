@@ -1,38 +1,38 @@
 
 ## 📅 JADWAL ANIME HARI INI
-*Update: SATURDAY*
+*Update: SUNDAY*
 
-- **Shimajirou no Wow!**
-- **Cardfight!! Vanguard: Divinez Genma Seisen-hen**
-- **Ninjala (TV)**
-- **Bonobono (TV 2016)**
-- **Ao no Miburo: Serizawa Ansatsu-hen**
-- **Tensei shitara Dragon no Tamago datta**
-- **Dead Account**
-- **Trigun Stargaze**
-- **Fumetsu no Anata e Season 3**
-- **Enen no Shouboutai: San no Shou Part 2**
+- **Tomica to Tom (TV)**
+- **Sai-Kyo-Oh! Zukan: The Ultimate Tournament**
+- **Manul no Yuube**
+- **Himitsu no AiPri: Ring-hen**
+- **Meitantei Precure!**
+- **Koupen-chan**
+- **Hikuidori: Ushuu Boro Tobi-gumi**
+- **Princession Orchestra**
+- **Chibi Maruko-chan (1995)**
+- **SI-VIS: The Sound of Heroes**
 
 ---
-🕒 **JAM UPDATE:** Minggu, 29 Maret 2026 pukul 04:00 WIB
+🕒 **JAM UPDATE:** Minggu, 29 Maret 2026 pukul 07:00 WIB
 🔄 *Otomatis update 7x sehari*
 
 
 ## 📅 JADWAL ANIME HARI INI
-*Update: SATURDAY*
+*Update: SUNDAY*
 
-- **Shimajirou no Wow!**
-- **Cardfight!! Vanguard: Divinez Genma Seisen-hen**
-- **Ninjala (TV)**
-- **Bonobono (TV 2016)**
-- **Ao no Miburo: Serizawa Ansatsu-hen**
-- **Tensei shitara Dragon no Tamago datta**
-- **Dead Account**
-- **Trigun Stargaze**
-- **Fumetsu no Anata e Season 3**
-- **Enen no Shouboutai: San no Shou Part 2**
+- **Tomica to Tom (TV)**
+- **Sai-Kyo-Oh! Zukan: The Ultimate Tournament**
+- **Manul no Yuube**
+- **Himitsu no AiPri: Ring-hen**
+- **Meitantei Precure!**
+- **Koupen-chan**
+- **Hikuidori: Ushuu Boro Tobi-gumi**
+- **Princession Orchestra**
+- **Chibi Maruko-chan (1995)**
+- **SI-VIS: The Sound of Heroes**
 
 ---
-🕒 **JAM UPDATE:** Minggu, 29 Maret 2026 pukul 04:00 WIB
+🕒 **JAM UPDATE:** Minggu, 29 Maret 2026 pukul 07:00 WIB
 🔄 *Otomatis update 7x sehari*
 
