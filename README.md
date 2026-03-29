@@ -11,10 +11,10 @@
 - **Hikuidori: Ushuu Boro Tobi-gumi**
 - **Princession Orchestra**
 - **Chibi Maruko-chan (1995)**
-- **SI-VIS: The Sound of Heroes**
+- **Sazae-san**
 
 ---
-🕒 **JAM UPDATE:** Minggu, 29 Maret 2026 pukul 07:00 WIB
+🕒 **JAM UPDATE:** Minggu, 29 Maret 2026 pukul 10:00 WIB
 🔄 *Otomatis update 7x sehari*
 
 
@@ -30,9 +30,9 @@
 - **Hikuidori: Ushuu Boro Tobi-gumi**
 - **Princession Orchestra**
 - **Chibi Maruko-chan (1995)**
-- **SI-VIS: The Sound of Heroes**
+- **Sazae-san**
 
 ---
-🕒 **JAM UPDATE:** Minggu, 29 Maret 2026 pukul 07:00 WIB
+🕒 **JAM UPDATE:** Minggu, 29 Maret 2026 pukul 10:00 WIB
 🔄 *Otomatis update 7x sehari*
 
