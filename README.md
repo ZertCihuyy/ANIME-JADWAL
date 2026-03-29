@@ -14,7 +14,7 @@
 - **Yuusha no Kuzu**
 
 ---
-🕒 **JAM UPDATE:** Minggu, 29 Maret 2026 pukul 19:00 WIB
+🕒 **JAM UPDATE:** Minggu, 29 Maret 2026 pukul 22:00 WIB
 🔄 *Otomatis update 7x sehari*
 
 
@@ -33,6 +33,6 @@
 - **Yuusha no Kuzu**
 
 ---
-🕒 **JAM UPDATE:** Minggu, 29 Maret 2026 pukul 19:00 WIB
+🕒 **JAM UPDATE:** Minggu, 29 Maret 2026 pukul 22:00 WIB
 🔄 *Otomatis update 7x sehari*
 
