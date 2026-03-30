@@ -1,38 +1,36 @@
 
 ## 📅 JADWAL ANIME HARI INI
-*Update: SUNDAY*
+*Update: MONDAY*
 
-- **Tomica to Tom (TV)**
-- **Manul no Yuube**
-- **Meitantei Precure!**
-- **Koupen-chan**
-- **Hikuidori: Ushuu Boro Tobi-gumi**
-- **Chibi Maruko-chan (1995)**
-- **Sazae-san**
-- **Shunkashuutou Daikousha: Haru no Mai**
-- **Jingai Kyoushitsu no Ningengirai Kyoushi**
-- **Yuusha no Kuzu**
+- **Uso Tantei Tomanto**
+- **Shin Nippon History**
+- **Puzzle & Dragon**
+- **Yami Shibai 16**
+- **Yami Shibai 16**
+- **Niwatori Fighter**
+- **Himesama "Goumon" no Jikan desu 2nd Season**
+- **Golden Kamuy: Saishuushou**
+- **Vigilante: Boku no Hero Academia Illegals 2nd Season**
 
 ---
-🕒 **JAM UPDATE:** Senin, 30 Maret 2026 pukul 04:00 WIB
+🕒 **JAM UPDATE:** Senin, 30 Maret 2026 pukul 07:00 WIB
 🔄 *Otomatis update 7x sehari*
 
 
 ## 📅 JADWAL ANIME HARI INI
-*Update: SUNDAY*
+*Update: MONDAY*
 
-- **Tomica to Tom (TV)**
-- **Manul no Yuube**
-- **Meitantei Precure!**
-- **Koupen-chan**
-- **Hikuidori: Ushuu Boro Tobi-gumi**
-- **Chibi Maruko-chan (1995)**
-- **Sazae-san**
-- **Shunkashuutou Daikousha: Haru no Mai**
-- **Jingai Kyoushitsu no Ningengirai Kyoushi**
-- **Yuusha no Kuzu**
+- **Uso Tantei Tomanto**
+- **Shin Nippon History**
+- **Puzzle & Dragon**
+- **Yami Shibai 16**
+- **Yami Shibai 16**
+- **Niwatori Fighter**
+- **Himesama "Goumon" no Jikan desu 2nd Season**
+- **Golden Kamuy: Saishuushou**
+- **Vigilante: Boku no Hero Academia Illegals 2nd Season**
 
 ---
-🕒 **JAM UPDATE:** Senin, 30 Maret 2026 pukul 04:00 WIB
+🕒 **JAM UPDATE:** Senin, 30 Maret 2026 pukul 07:00 WIB
 🔄 *Otomatis update 7x sehari*
 
