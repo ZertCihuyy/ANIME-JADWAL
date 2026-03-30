@@ -10,10 +10,9 @@
 - **Niwatori Fighter**
 - **Himesama "Goumon" no Jikan desu 2nd Season**
 - **Golden Kamuy: Saishuushou**
-- **Vigilante: Boku no Hero Academia Illegals 2nd Season**
 
 ---
-🕒 **JAM UPDATE:** Selasa, 31 Maret 2026 pukul 01:00 WIB
+🕒 **JAM UPDATE:** Selasa, 31 Maret 2026 pukul 04:00 WIB
 🔄 *Otomatis update 7x sehari*
 
 
@@ -28,9 +27,8 @@
 - **Niwatori Fighter**
 - **Himesama "Goumon" no Jikan desu 2nd Season**
 - **Golden Kamuy: Saishuushou**
-- **Vigilante: Boku no Hero Academia Illegals 2nd Season**
 
 ---
-🕒 **JAM UPDATE:** Selasa, 31 Maret 2026 pukul 01:00 WIB
+🕒 **JAM UPDATE:** Selasa, 31 Maret 2026 pukul 04:00 WIB
 🔄 *Otomatis update 7x sehari*
 
