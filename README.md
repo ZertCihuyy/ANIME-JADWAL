@@ -1,34 +1,26 @@
 
 ## 📅 JADWAL ANIME HARI INI
-*Update: MONDAY*
+*Update: TUESDAY*
 
-- **Uso Tantei Tomanto**
-- **Shin Nippon History**
-- **Puzzle & Dragon**
-- **Yami Shibai 16**
-- **Yami Shibai 16**
-- **Niwatori Fighter**
-- **Himesama "Goumon" no Jikan desu 2nd Season**
-- **Golden Kamuy: Saishuushou**
+- **Origami Ninja Koyankinte**
+- **Fushigi Dagashiya: Zenitendou**
+- **Yuusha Party ni Kawaii Ko ga Ita node, Kokuhaku shitemita.**
+- **Chitose-kun wa Ramune Bin no Naka**
 
 ---
-🕒 **JAM UPDATE:** Selasa, 31 Maret 2026 pukul 04:00 WIB
+🕒 **JAM UPDATE:** Selasa, 31 Maret 2026 pukul 07:00 WIB
 🔄 *Otomatis update 7x sehari*
 
 
 ## 📅 JADWAL ANIME HARI INI
-*Update: MONDAY*
+*Update: TUESDAY*
 
-- **Uso Tantei Tomanto**
-- **Shin Nippon History**
-- **Puzzle & Dragon**
-- **Yami Shibai 16**
-- **Yami Shibai 16**
-- **Niwatori Fighter**
-- **Himesama "Goumon" no Jikan desu 2nd Season**
-- **Golden Kamuy: Saishuushou**
+- **Origami Ninja Koyankinte**
+- **Fushigi Dagashiya: Zenitendou**
+- **Yuusha Party ni Kawaii Ko ga Ita node, Kokuhaku shitemita.**
+- **Chitose-kun wa Ramune Bin no Naka**
 
 ---
-🕒 **JAM UPDATE:** Selasa, 31 Maret 2026 pukul 04:00 WIB
+🕒 **JAM UPDATE:** Selasa, 31 Maret 2026 pukul 07:00 WIB
 🔄 *Otomatis update 7x sehari*
 
