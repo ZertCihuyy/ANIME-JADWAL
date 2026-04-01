@@ -6,7 +6,7 @@
 - **Pochars**
 
 ---
-🕒 **JAM UPDATE:** Rabu, 1 April 2026 pukul 16:00 WIB
+🕒 **JAM UPDATE:** Rabu, 1 April 2026 pukul 19:00 WIB
 🔄 *Otomatis update 7x sehari*
 
 
@@ -17,6 +17,6 @@
 - **Pochars**
 
 ---
-🕒 **JAM UPDATE:** Rabu, 1 April 2026 pukul 16:00 WIB
+🕒 **JAM UPDATE:** Rabu, 1 April 2026 pukul 19:00 WIB
 🔄 *Otomatis update 7x sehari*
 
