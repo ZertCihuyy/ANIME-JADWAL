@@ -4,9 +4,11 @@
 
 - **Chibi Godzilla no Gyakushuu 3rd Season**
 - **Pochars**
+- **Daikenja Riddle no Jikan Gyakkou**
+- **Daikenja Riddle no Jikan Gyakkou**
 
 ---
-🕒 **JAM UPDATE:** Rabu, 1 April 2026 pukul 22:00 WIB
+🕒 **JAM UPDATE:** Kamis, 2 April 2026 pukul 01:00 WIB
 🔄 *Otomatis update 7x sehari*
 
 
@@ -15,8 +17,10 @@
 
 - **Chibi Godzilla no Gyakushuu 3rd Season**
 - **Pochars**
+- **Daikenja Riddle no Jikan Gyakkou**
+- **Daikenja Riddle no Jikan Gyakkou**
 
 ---
-🕒 **JAM UPDATE:** Rabu, 1 April 2026 pukul 22:00 WIB
+🕒 **JAM UPDATE:** Kamis, 2 April 2026 pukul 01:00 WIB
 🔄 *Otomatis update 7x sehari*
 
