@@ -4,10 +4,11 @@
 
 - **Metal Cardbot W**
 - **Metal Cardbot W**
+- **Nigashita Sakana wa Ookikatta ga Tsuriageta Sakana ga Ookisugita Ken**
 - **Ganbare! Nakamura-kun!!**
 
 ---
-🕒 **JAM UPDATE:** Kamis, 2 April 2026 pukul 10:00 WIB
+🕒 **JAM UPDATE:** Kamis, 2 April 2026 pukul 13:00 WIB
 🔄 *Otomatis update 7x sehari*
 
 
@@ -16,9 +17,10 @@
 
 - **Metal Cardbot W**
 - **Metal Cardbot W**
+- **Nigashita Sakana wa Ookikatta ga Tsuriageta Sakana ga Ookisugita Ken**
 - **Ganbare! Nakamura-kun!!**
 
 ---
-🕒 **JAM UPDATE:** Kamis, 2 April 2026 pukul 10:00 WIB
+🕒 **JAM UPDATE:** Kamis, 2 April 2026 pukul 13:00 WIB
 🔄 *Otomatis update 7x sehari*
 
