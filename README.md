@@ -8,7 +8,7 @@
 - **Ganbare! Nakamura-kun!!**
 
 ---
-🕒 **JAM UPDATE:** Kamis, 2 April 2026 pukul 13:00 WIB
+🕒 **JAM UPDATE:** Kamis, 2 April 2026 pukul 16:00 WIB
 🔄 *Otomatis update 7x sehari*
 
 
@@ -21,6 +21,6 @@
 - **Ganbare! Nakamura-kun!!**
 
 ---
-🕒 **JAM UPDATE:** Kamis, 2 April 2026 pukul 13:00 WIB
+🕒 **JAM UPDATE:** Kamis, 2 April 2026 pukul 16:00 WIB
 🔄 *Otomatis update 7x sehari*
 
