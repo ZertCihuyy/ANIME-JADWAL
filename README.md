@@ -1,26 +1,32 @@
 
 ## 📅 JADWAL ANIME HARI INI
-*Update: THURSDAY*
+*Update: FRIDAY*
 
-- **Metal Cardbot W**
-- **Metal Cardbot W**
-- **Nigashita Sakana wa Ookikatta ga Tsuriageta Sakana ga Ookisugita Ken**
-- **Ganbare! Nakamura-kun!!**
+- **Komekami! Girls**
+- **Sore Ike! Anpanman**
+- **Beyblade X**
+- **Chiikawa**
+- **Doraemon (2005)**
+- **Pokemon (2023)**
+- **Crayon Shin-chan**
 
 ---
-🕒 **JAM UPDATE:** Jumat, 3 April 2026 pukul 04:00 WIB
+🕒 **JAM UPDATE:** Jumat, 3 April 2026 pukul 07:00 WIB
 🔄 *Otomatis update 7x sehari*
 
 
 ## 📅 JADWAL ANIME HARI INI
-*Update: THURSDAY*
+*Update: FRIDAY*
 
-- **Metal Cardbot W**
-- **Metal Cardbot W**
-- **Nigashita Sakana wa Ookikatta ga Tsuriageta Sakana ga Ookisugita Ken**
-- **Ganbare! Nakamura-kun!!**
+- **Komekami! Girls**
+- **Sore Ike! Anpanman**
+- **Beyblade X**
+- **Chiikawa**
+- **Doraemon (2005)**
+- **Pokemon (2023)**
+- **Crayon Shin-chan**
 
 ---
-🕒 **JAM UPDATE:** Jumat, 3 April 2026 pukul 04:00 WIB
+🕒 **JAM UPDATE:** Jumat, 3 April 2026 pukul 07:00 WIB
 🔄 *Otomatis update 7x sehari*
 
