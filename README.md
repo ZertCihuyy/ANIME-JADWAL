@@ -14,7 +14,7 @@
 - **Doraemon (2005)**
 
 ---
-🕒 **JAM UPDATE:** Sabtu, 4 April 2026 pukul 01:00 WIB
+🕒 **JAM UPDATE:** Sabtu, 4 April 2026 pukul 04:00 WIB
 🔄 *Otomatis update 7x sehari*
 
 
@@ -33,6 +33,6 @@
 - **Doraemon (2005)**
 
 ---
-🕒 **JAM UPDATE:** Sabtu, 4 April 2026 pukul 01:00 WIB
+🕒 **JAM UPDATE:** Sabtu, 4 April 2026 pukul 04:00 WIB
 🔄 *Otomatis update 7x sehari*
 
