@@ -14,7 +14,7 @@
 - **Pokemon (2023)**
 
 ---
-🕒 **JAM UPDATE:** Jumat, 3 April 2026 pukul 19:00 WIB
+🕒 **JAM UPDATE:** Jumat, 3 April 2026 pukul 22:00 WIB
 🔄 *Otomatis update 7x sehari*
 
 
@@ -33,6 +33,6 @@
 - **Pokemon (2023)**
 
 ---
-🕒 **JAM UPDATE:** Jumat, 3 April 2026 pukul 19:00 WIB
+🕒 **JAM UPDATE:** Jumat, 3 April 2026 pukul 22:00 WIB
 🔄 *Otomatis update 7x sehari*
 
