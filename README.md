@@ -11,7 +11,7 @@
 - **Crayon Shin-chan**
 
 ---
-🕒 **JAM UPDATE:** Jumat, 3 April 2026 pukul 07:00 WIB
+🕒 **JAM UPDATE:** Jumat, 3 April 2026 pukul 10:00 WIB
 🔄 *Otomatis update 7x sehari*
 
 
@@ -27,6 +27,6 @@
 - **Crayon Shin-chan**
 
 ---
-🕒 **JAM UPDATE:** Jumat, 3 April 2026 pukul 07:00 WIB
+🕒 **JAM UPDATE:** Jumat, 3 April 2026 pukul 10:00 WIB
 🔄 *Otomatis update 7x sehari*
 
