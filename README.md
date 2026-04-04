@@ -14,7 +14,7 @@
 - **Meitantei Conan**
 
 ---
-🕒 **JAM UPDATE:** Minggu, 5 April 2026 pukul 01:00 WIB
+🕒 **JAM UPDATE:** Minggu, 5 April 2026 pukul 04:00 WIB
 🔄 *Otomatis update 7x sehari*
 
 
@@ -33,6 +33,6 @@
 - **Meitantei Conan**
 
 ---
-🕒 **JAM UPDATE:** Minggu, 5 April 2026 pukul 01:00 WIB
+🕒 **JAM UPDATE:** Minggu, 5 April 2026 pukul 04:00 WIB
 🔄 *Otomatis update 7x sehari*
 
