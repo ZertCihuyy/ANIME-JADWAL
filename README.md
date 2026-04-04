@@ -3,6 +3,7 @@
 *Update: SATURDAY*
 
 - **Shimajirou no Wow!**
+- **Rilakkuma**
 - **Cardfight!! Vanguard: Divinez Genma Seisen-hen**
 - **Ninjala (TV)**
 - **Bonobono (TV 2016)**
@@ -10,7 +11,7 @@
 - **Meitantei Conan**
 
 ---
-🕒 **JAM UPDATE:** Sabtu, 4 April 2026 pukul 13:00 WIB
+🕒 **JAM UPDATE:** Sabtu, 4 April 2026 pukul 16:00 WIB
 🔄 *Otomatis update 7x sehari*
 
 
@@ -18,6 +19,7 @@
 *Update: SATURDAY*
 
 - **Shimajirou no Wow!**
+- **Rilakkuma**
 - **Cardfight!! Vanguard: Divinez Genma Seisen-hen**
 - **Ninjala (TV)**
 - **Bonobono (TV 2016)**
@@ -25,6 +27,6 @@
 - **Meitantei Conan**
 
 ---
-🕒 **JAM UPDATE:** Sabtu, 4 April 2026 pukul 13:00 WIB
+🕒 **JAM UPDATE:** Sabtu, 4 April 2026 pukul 16:00 WIB
 🔄 *Otomatis update 7x sehari*
 
