@@ -3,6 +3,7 @@
 *Update: SUNDAY*
 
 - **Tomica to Tom (TV)**
+- **Onegai AiPri**
 - **Manul no Yuube**
 - **Meitantei Precure!**
 - **Koupen-chan**
@@ -11,10 +12,9 @@
 - **Kami no Niwatsuki Kusunoki-tei**
 - **Sazae-san**
 - **Maid-san wa Taberu dake**
-- **Maid-san wa Taberu dake**
 
 ---
-🕒 **JAM UPDATE:** Minggu, 5 April 2026 pukul 13:00 WIB
+🕒 **JAM UPDATE:** Minggu, 5 April 2026 pukul 16:00 WIB
 🔄 *Otomatis update 7x sehari*
 
 
@@ -22,6 +22,7 @@
 *Update: SUNDAY*
 
 - **Tomica to Tom (TV)**
+- **Onegai AiPri**
 - **Manul no Yuube**
 - **Meitantei Precure!**
 - **Koupen-chan**
@@ -30,9 +31,8 @@
 - **Kami no Niwatsuki Kusunoki-tei**
 - **Sazae-san**
 - **Maid-san wa Taberu dake**
-- **Maid-san wa Taberu dake**
 
 ---
-🕒 **JAM UPDATE:** Minggu, 5 April 2026 pukul 13:00 WIB
+🕒 **JAM UPDATE:** Minggu, 5 April 2026 pukul 16:00 WIB
 🔄 *Otomatis update 7x sehari*
 
