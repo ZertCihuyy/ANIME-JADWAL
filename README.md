@@ -14,7 +14,7 @@
 - **Maid-san wa Taberu dake**
 
 ---
-🕒 **JAM UPDATE:** Minggu, 5 April 2026 pukul 22:00 WIB
+🕒 **JAM UPDATE:** Senin, 6 April 2026 pukul 01:00 WIB
 🔄 *Otomatis update 7x sehari*
 
 
@@ -33,6 +33,6 @@
 - **Maid-san wa Taberu dake**
 
 ---
-🕒 **JAM UPDATE:** Minggu, 5 April 2026 pukul 22:00 WIB
+🕒 **JAM UPDATE:** Senin, 6 April 2026 pukul 01:00 WIB
 🔄 *Otomatis update 7x sehari*
 
