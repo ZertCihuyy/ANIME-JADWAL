@@ -1,38 +1,38 @@
 
 ## 📅 JADWAL ANIME HARI INI
-*Update: SATURDAY*
+*Update: SUNDAY*
 
-- **Oshiri Tantei 10th Season**
-- **Nezumi-kun no Chokki (TV)**
-- **Shimajirou no Wow!**
-- **Rilakkuma**
-- **Cardfight!! Vanguard: Divinez Genma Seisen-hen**
-- **Ninjala (TV)**
-- **Bonobono (TV 2016)**
-- **Saikyou no Shokugyou wa Yuusha demo Kenja demo Naku Kanteishi (Kari) Rashii desu yo?**
-- **Honzuki no Gekokujou: Shisho ni Naru Tame ni wa Shudan wo Erandeiraremasen - Ryoushu no Youjo**
-- **Meitantei Conan**
+- **Tomica to Tom (TV)**
+- **Manul no Yuube**
+- **Meitantei Precure!**
+- **Koupen-chan**
+- **Hikuidori: Ushuu Boro Tobi-gumi**
+- **Chibi Maruko-chan (1995)**
+- **Kami no Niwatsuki Kusunoki-tei**
+- **Sazae-san**
+- **Maid-san wa Taberu dake**
+- **Maid-san wa Taberu dake**
 
 ---
-🕒 **JAM UPDATE:** Minggu, 5 April 2026 pukul 04:00 WIB
+🕒 **JAM UPDATE:** Minggu, 5 April 2026 pukul 07:00 WIB
 🔄 *Otomatis update 7x sehari*
 
 
 ## 📅 JADWAL ANIME HARI INI
-*Update: SATURDAY*
+*Update: SUNDAY*
 
-- **Oshiri Tantei 10th Season**
-- **Nezumi-kun no Chokki (TV)**
-- **Shimajirou no Wow!**
-- **Rilakkuma**
-- **Cardfight!! Vanguard: Divinez Genma Seisen-hen**
-- **Ninjala (TV)**
-- **Bonobono (TV 2016)**
-- **Saikyou no Shokugyou wa Yuusha demo Kenja demo Naku Kanteishi (Kari) Rashii desu yo?**
-- **Honzuki no Gekokujou: Shisho ni Naru Tame ni wa Shudan wo Erandeiraremasen - Ryoushu no Youjo**
-- **Meitantei Conan**
+- **Tomica to Tom (TV)**
+- **Manul no Yuube**
+- **Meitantei Precure!**
+- **Koupen-chan**
+- **Hikuidori: Ushuu Boro Tobi-gumi**
+- **Chibi Maruko-chan (1995)**
+- **Kami no Niwatsuki Kusunoki-tei**
+- **Sazae-san**
+- **Maid-san wa Taberu dake**
+- **Maid-san wa Taberu dake**
 
 ---
-🕒 **JAM UPDATE:** Minggu, 5 April 2026 pukul 04:00 WIB
+🕒 **JAM UPDATE:** Minggu, 5 April 2026 pukul 07:00 WIB
 🔄 *Otomatis update 7x sehari*
 
