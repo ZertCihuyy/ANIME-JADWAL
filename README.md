@@ -9,12 +9,12 @@
 - **Koupen-chan**
 - **Hikuidori: Ushuu Boro Tobi-gumi**
 - **Chibi Maruko-chan (1995)**
-- **Kami no Niwatsuki Kusunoki-tei**
 - **Sazae-san**
+- **Maid-san wa Taberu dake**
 - **Maid-san wa Taberu dake**
 
 ---
-🕒 **JAM UPDATE:** Senin, 6 April 2026 pukul 01:00 WIB
+🕒 **JAM UPDATE:** Senin, 6 April 2026 pukul 04:00 WIB
 🔄 *Otomatis update 7x sehari*
 
 
@@ -28,11 +28,11 @@
 - **Koupen-chan**
 - **Hikuidori: Ushuu Boro Tobi-gumi**
 - **Chibi Maruko-chan (1995)**
-- **Kami no Niwatsuki Kusunoki-tei**
 - **Sazae-san**
+- **Maid-san wa Taberu dake**
 - **Maid-san wa Taberu dake**
 
 ---
-🕒 **JAM UPDATE:** Senin, 6 April 2026 pukul 01:00 WIB
+🕒 **JAM UPDATE:** Senin, 6 April 2026 pukul 04:00 WIB
 🔄 *Otomatis update 7x sehari*
 
