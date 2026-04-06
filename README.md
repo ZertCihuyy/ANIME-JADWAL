@@ -13,7 +13,7 @@
 - **Niwatori Fighter**
 
 ---
-🕒 **JAM UPDATE:** Senin, 6 April 2026 pukul 22:00 WIB
+🕒 **JAM UPDATE:** Selasa, 7 April 2026 pukul 01:00 WIB
 🔄 *Otomatis update 7x sehari*
 
 
@@ -31,6 +31,6 @@
 - **Niwatori Fighter**
 
 ---
-🕒 **JAM UPDATE:** Senin, 6 April 2026 pukul 22:00 WIB
+🕒 **JAM UPDATE:** Selasa, 7 April 2026 pukul 01:00 WIB
 🔄 *Otomatis update 7x sehari*
 
