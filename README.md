@@ -5,11 +5,15 @@
 - **Shin Nippon History**
 - **Puzzle & Dragon**
 - **Ghost Concert: Missing Songs**
+- **Ingoku Danchi**
+- **Marika-chan no Koukando wa Bukkowareteiru**
+- **Marika-chan no Koukando wa Bukkowareteiru**
+- **Marika-chan no Koukando wa Bukkowareteiru**
 - **Jishou Akuyaku Reijou na Konyakusha no Kansatsu Kiroku.**
 - **Niwatori Fighter**
 
 ---
-🕒 **JAM UPDATE:** Senin, 6 April 2026 pukul 10:00 WIB
+🕒 **JAM UPDATE:** Senin, 6 April 2026 pukul 13:00 WIB
 🔄 *Otomatis update 7x sehari*
 
 
@@ -19,10 +23,14 @@
 - **Shin Nippon History**
 - **Puzzle & Dragon**
 - **Ghost Concert: Missing Songs**
+- **Ingoku Danchi**
+- **Marika-chan no Koukando wa Bukkowareteiru**
+- **Marika-chan no Koukando wa Bukkowareteiru**
+- **Marika-chan no Koukando wa Bukkowareteiru**
 - **Jishou Akuyaku Reijou na Konyakusha no Kansatsu Kiroku.**
 - **Niwatori Fighter**
 
 ---
-🕒 **JAM UPDATE:** Senin, 6 April 2026 pukul 10:00 WIB
+🕒 **JAM UPDATE:** Senin, 6 April 2026 pukul 13:00 WIB
 🔄 *Otomatis update 7x sehari*
 
