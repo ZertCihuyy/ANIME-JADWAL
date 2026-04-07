@@ -10,7 +10,7 @@
 - **Liar Game**
 
 ---
-🕒 **JAM UPDATE:** Rabu, 8 April 2026 pukul 01:00 WIB
+🕒 **JAM UPDATE:** Rabu, 8 April 2026 pukul 04:00 WIB
 🔄 *Otomatis update 7x sehari*
 
 
@@ -25,6 +25,6 @@
 - **Liar Game**
 
 ---
-🕒 **JAM UPDATE:** Rabu, 8 April 2026 pukul 01:00 WIB
+🕒 **JAM UPDATE:** Rabu, 8 April 2026 pukul 04:00 WIB
 🔄 *Otomatis update 7x sehari*
 
