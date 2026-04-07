@@ -5,9 +5,10 @@
 - **Origami Ninja Koyankinte**
 - **Fushigi Dagashiya: Zenitendou**
 - **Nippon Sangoku**
+- **Liar Game**
 
 ---
-🕒 **JAM UPDATE:** Selasa, 7 April 2026 pukul 13:00 WIB
+🕒 **JAM UPDATE:** Selasa, 7 April 2026 pukul 16:00 WIB
 🔄 *Otomatis update 7x sehari*
 
 
@@ -17,8 +18,9 @@
 - **Origami Ninja Koyankinte**
 - **Fushigi Dagashiya: Zenitendou**
 - **Nippon Sangoku**
+- **Liar Game**
 
 ---
-🕒 **JAM UPDATE:** Selasa, 7 April 2026 pukul 13:00 WIB
+🕒 **JAM UPDATE:** Selasa, 7 April 2026 pukul 16:00 WIB
 🔄 *Otomatis update 7x sehari*
 
