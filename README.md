@@ -4,11 +4,13 @@
 
 - **Origami Ninja Koyankinte**
 - **Fushigi Dagashiya: Zenitendou**
+- **Hyakki Yakoushou**
+- **Replica datte, Koi wo Suru.**
 - **Nippon Sangoku**
 - **Liar Game**
 
 ---
-🕒 **JAM UPDATE:** Selasa, 7 April 2026 pukul 22:00 WIB
+🕒 **JAM UPDATE:** Rabu, 8 April 2026 pukul 01:00 WIB
 🔄 *Otomatis update 7x sehari*
 
 
@@ -17,10 +19,12 @@
 
 - **Origami Ninja Koyankinte**
 - **Fushigi Dagashiya: Zenitendou**
+- **Hyakki Yakoushou**
+- **Replica datte, Koi wo Suru.**
 - **Nippon Sangoku**
 - **Liar Game**
 
 ---
-🕒 **JAM UPDATE:** Selasa, 7 April 2026 pukul 22:00 WIB
+🕒 **JAM UPDATE:** Rabu, 8 April 2026 pukul 01:00 WIB
 🔄 *Otomatis update 7x sehari*
 
