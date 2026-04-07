@@ -7,7 +7,7 @@
 - **Nippon Sangoku**
 
 ---
-🕒 **JAM UPDATE:** Selasa, 7 April 2026 pukul 07:00 WIB
+🕒 **JAM UPDATE:** Selasa, 7 April 2026 pukul 10:00 WIB
 🔄 *Otomatis update 7x sehari*
 
 
@@ -19,6 +19,6 @@
 - **Nippon Sangoku**
 
 ---
-🕒 **JAM UPDATE:** Selasa, 7 April 2026 pukul 07:00 WIB
+🕒 **JAM UPDATE:** Selasa, 7 April 2026 pukul 10:00 WIB
 🔄 *Otomatis update 7x sehari*
 
