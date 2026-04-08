@@ -14,7 +14,7 @@
 - **Saikyou no Ousama, Nidome no Jinsei wa Nani wo Suru? Season 2**
 
 ---
-🕒 **JAM UPDATE:** Rabu, 8 April 2026 pukul 19:00 WIB
+🕒 **JAM UPDATE:** Rabu, 8 April 2026 pukul 22:00 WIB
 🔄 *Otomatis update 7x sehari*
 
 
@@ -33,6 +33,6 @@
 - **Saikyou no Ousama, Nidome no Jinsei wa Nani wo Suru? Season 2**
 
 ---
-🕒 **JAM UPDATE:** Rabu, 8 April 2026 pukul 19:00 WIB
+🕒 **JAM UPDATE:** Rabu, 8 April 2026 pukul 22:00 WIB
 🔄 *Otomatis update 7x sehari*
 
