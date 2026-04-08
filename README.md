@@ -14,7 +14,7 @@
 - **Youkoso Jitsuryoku Shijou Shugi no Kyoushitsu e 4th Season: 2-nensei-hen 1 Gakki**
 
 ---
-🕒 **JAM UPDATE:** Rabu, 8 April 2026 pukul 10:00 WIB
+🕒 **JAM UPDATE:** Rabu, 8 April 2026 pukul 13:00 WIB
 🔄 *Otomatis update 7x sehari*
 
 
@@ -33,6 +33,6 @@
 - **Youkoso Jitsuryoku Shijou Shugi no Kyoushitsu e 4th Season: 2-nensei-hen 1 Gakki**
 
 ---
-🕒 **JAM UPDATE:** Rabu, 8 April 2026 pukul 10:00 WIB
+🕒 **JAM UPDATE:** Rabu, 8 April 2026 pukul 13:00 WIB
 🔄 *Otomatis update 7x sehari*
 
