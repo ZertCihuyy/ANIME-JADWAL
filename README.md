@@ -12,7 +12,7 @@
 - **Dr. Stone: Science Future Part 3**
 
 ---
-🕒 **JAM UPDATE:** Kamis, 9 April 2026 pukul 22:00 WIB
+🕒 **JAM UPDATE:** Jumat, 10 April 2026 pukul 01:00 WIB
 🔄 *Otomatis update 7x sehari*
 
 
@@ -29,6 +29,6 @@
 - **Dr. Stone: Science Future Part 3**
 
 ---
-🕒 **JAM UPDATE:** Kamis, 9 April 2026 pukul 22:00 WIB
+🕒 **JAM UPDATE:** Jumat, 10 April 2026 pukul 01:00 WIB
 🔄 *Otomatis update 7x sehari*
 
