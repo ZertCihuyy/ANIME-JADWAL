@@ -6,12 +6,13 @@
 - **Metal Cardbot W**
 - **Nigashita Sakana wa Ookikatta ga Tsuriageta Sakana ga Ookisugita Ken**
 - **Ganbare! Nakamura-kun!!**
+- **Himekishi wa Barbaroi no Yome**
 - **Koori no Jouheki**
 - **Dr. Stone: Science Future Part 3**
 - **Dr. Stone: Science Future Part 3**
 
 ---
-🕒 **JAM UPDATE:** Kamis, 9 April 2026 pukul 19:00 WIB
+🕒 **JAM UPDATE:** Kamis, 9 April 2026 pukul 22:00 WIB
 🔄 *Otomatis update 7x sehari*
 
 
@@ -22,11 +23,12 @@
 - **Metal Cardbot W**
 - **Nigashita Sakana wa Ookikatta ga Tsuriageta Sakana ga Ookisugita Ken**
 - **Ganbare! Nakamura-kun!!**
+- **Himekishi wa Barbaroi no Yome**
 - **Koori no Jouheki**
 - **Dr. Stone: Science Future Part 3**
 - **Dr. Stone: Science Future Part 3**
 
 ---
-🕒 **JAM UPDATE:** Kamis, 9 April 2026 pukul 19:00 WIB
+🕒 **JAM UPDATE:** Kamis, 9 April 2026 pukul 22:00 WIB
 🔄 *Otomatis update 7x sehari*
 
