@@ -14,7 +14,7 @@
 - **Haibara-kun no Tsuyokute Seishun New Game**
 
 ---
-🕒 **JAM UPDATE:** Jumat, 10 April 2026 pukul 07:00 WIB
+🕒 **JAM UPDATE:** Jumat, 10 April 2026 pukul 10:00 WIB
 🔄 *Otomatis update 7x sehari*
 
 
@@ -33,6 +33,6 @@
 - **Haibara-kun no Tsuyokute Seishun New Game**
 
 ---
-🕒 **JAM UPDATE:** Jumat, 10 April 2026 pukul 07:00 WIB
+🕒 **JAM UPDATE:** Jumat, 10 April 2026 pukul 10:00 WIB
 🔄 *Otomatis update 7x sehari*
 
