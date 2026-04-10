@@ -9,12 +9,12 @@
 - **Mamonogurai no Boukensha: Ore dake Mamono wo Kuratte Tsuyoku Naru**
 - **Mamonogurai no Boukensha: Ore dake Mamono wo Kuratte Tsuyoku Naru**
 - **Snowball Earth**
+- **Awajima Hyakkei**
 - **Mata Korosarete Shimatta no desu ne, Tantei-sama**
 - **Chiikawa**
-- **Haibara-kun no Tsuyokute Seishun New Game**
 
 ---
-🕒 **JAM UPDATE:** Jumat, 10 April 2026 pukul 19:00 WIB
+🕒 **JAM UPDATE:** Jumat, 10 April 2026 pukul 22:00 WIB
 🔄 *Otomatis update 7x sehari*
 
 
@@ -28,11 +28,11 @@
 - **Mamonogurai no Boukensha: Ore dake Mamono wo Kuratte Tsuyoku Naru**
 - **Mamonogurai no Boukensha: Ore dake Mamono wo Kuratte Tsuyoku Naru**
 - **Snowball Earth**
+- **Awajima Hyakkei**
 - **Mata Korosarete Shimatta no desu ne, Tantei-sama**
 - **Chiikawa**
-- **Haibara-kun no Tsuyokute Seishun New Game**
 
 ---
-🕒 **JAM UPDATE:** Jumat, 10 April 2026 pukul 19:00 WIB
+🕒 **JAM UPDATE:** Jumat, 10 April 2026 pukul 22:00 WIB
 🔄 *Otomatis update 7x sehari*
 
