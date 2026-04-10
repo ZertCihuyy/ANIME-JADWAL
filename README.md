@@ -14,7 +14,7 @@
 - **Chiikawa**
 
 ---
-🕒 **JAM UPDATE:** Jumat, 10 April 2026 pukul 22:00 WIB
+🕒 **JAM UPDATE:** Sabtu, 11 April 2026 pukul 01:00 WIB
 🔄 *Otomatis update 7x sehari*
 
 
@@ -33,6 +33,6 @@
 - **Chiikawa**
 
 ---
-🕒 **JAM UPDATE:** Jumat, 10 April 2026 pukul 22:00 WIB
+🕒 **JAM UPDATE:** Sabtu, 11 April 2026 pukul 01:00 WIB
 🔄 *Otomatis update 7x sehari*
 
