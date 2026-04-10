@@ -1,36 +1,38 @@
 
 ## 📅 JADWAL ANIME HARI INI
-*Update: THURSDAY*
+*Update: FRIDAY*
 
-- **Metal Cardbot W**
-- **Metal Cardbot W**
-- **Kujima Utaeba Ie Hororo**
-- **Nigashita Sakana wa Ookikatta ga Tsuriageta Sakana ga Ookisugita Ken**
-- **Ganbare! Nakamura-kun!!**
-- **Himekishi wa Barbaroi no Yome**
-- **Koori no Jouheki**
-- **Dr. Stone: Science Future Part 3**
-- **Dr. Stone: Science Future Part 3**
+- **Komekami! Girls**
+- **Sore Ike! Anpanman**
+- **Beyblade X**
+- **Kirio Fanclub**
+- **Mamonogurai no Boukensha: Ore dake Mamono wo Kuratte Tsuyoku Naru**
+- **Mamonogurai no Boukensha: Ore dake Mamono wo Kuratte Tsuyoku Naru**
+- **Snowball Earth**
+- **Mata Korosarete Shimatta no desu ne, Tantei-sama**
+- **Chiikawa**
+- **Haibara-kun no Tsuyokute Seishun New Game**
 
 ---
-🕒 **JAM UPDATE:** Jumat, 10 April 2026 pukul 04:00 WIB
+🕒 **JAM UPDATE:** Jumat, 10 April 2026 pukul 07:00 WIB
 🔄 *Otomatis update 7x sehari*
 
 
 ## 📅 JADWAL ANIME HARI INI
-*Update: THURSDAY*
+*Update: FRIDAY*
 
-- **Metal Cardbot W**
-- **Metal Cardbot W**
-- **Kujima Utaeba Ie Hororo**
-- **Nigashita Sakana wa Ookikatta ga Tsuriageta Sakana ga Ookisugita Ken**
-- **Ganbare! Nakamura-kun!!**
-- **Himekishi wa Barbaroi no Yome**
-- **Koori no Jouheki**
-- **Dr. Stone: Science Future Part 3**
-- **Dr. Stone: Science Future Part 3**
+- **Komekami! Girls**
+- **Sore Ike! Anpanman**
+- **Beyblade X**
+- **Kirio Fanclub**
+- **Mamonogurai no Boukensha: Ore dake Mamono wo Kuratte Tsuyoku Naru**
+- **Mamonogurai no Boukensha: Ore dake Mamono wo Kuratte Tsuyoku Naru**
+- **Snowball Earth**
+- **Mata Korosarete Shimatta no desu ne, Tantei-sama**
+- **Chiikawa**
+- **Haibara-kun no Tsuyokute Seishun New Game**
 
 ---
-🕒 **JAM UPDATE:** Jumat, 10 April 2026 pukul 04:00 WIB
+🕒 **JAM UPDATE:** Jumat, 10 April 2026 pukul 07:00 WIB
 🔄 *Otomatis update 7x sehari*
 
