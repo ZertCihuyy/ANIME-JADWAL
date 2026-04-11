@@ -14,7 +14,7 @@
 - **Mao**
 
 ---
-🕒 **JAM UPDATE:** Sabtu, 11 April 2026 pukul 22:00 WIB
+🕒 **JAM UPDATE:** Minggu, 12 April 2026 pukul 01:00 WIB
 🔄 *Otomatis update 7x sehari*
 
 
@@ -33,6 +33,6 @@
 - **Mao**
 
 ---
-🕒 **JAM UPDATE:** Sabtu, 11 April 2026 pukul 22:00 WIB
+🕒 **JAM UPDATE:** Minggu, 12 April 2026 pukul 01:00 WIB
 🔄 *Otomatis update 7x sehari*
 
