@@ -9,12 +9,12 @@
 - **Ninjala (TV)**
 - **Bonobono (TV 2016)**
 - **Hokuto no Ken: Fist of the North Star**
+- **Kamiina Botan, Yoeru Sugata wa Yuri no Hana**
 - **Mao**
 - **Saikyou no Shokugyou wa Yuusha demo Kenja demo Naku Kanteishi (Kari) Rashii desu yo?**
-- **Kanojo, Okarishimasu 5th Season**
 
 ---
-🕒 **JAM UPDATE:** Sabtu, 11 April 2026 pukul 16:00 WIB
+🕒 **JAM UPDATE:** Sabtu, 11 April 2026 pukul 19:00 WIB
 🔄 *Otomatis update 7x sehari*
 
 
@@ -28,11 +28,11 @@
 - **Ninjala (TV)**
 - **Bonobono (TV 2016)**
 - **Hokuto no Ken: Fist of the North Star**
+- **Kamiina Botan, Yoeru Sugata wa Yuri no Hana**
 - **Mao**
 - **Saikyou no Shokugyou wa Yuusha demo Kenja demo Naku Kanteishi (Kari) Rashii desu yo?**
-- **Kanojo, Okarishimasu 5th Season**
 
 ---
-🕒 **JAM UPDATE:** Sabtu, 11 April 2026 pukul 16:00 WIB
+🕒 **JAM UPDATE:** Sabtu, 11 April 2026 pukul 19:00 WIB
 🔄 *Otomatis update 7x sehari*
 
