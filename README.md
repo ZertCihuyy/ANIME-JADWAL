@@ -10,11 +10,11 @@
 - **Bonobono (TV 2016)**
 - **Hokuto no Ken: Fist of the North Star**
 - **Kamiina Botan, Yoeru Sugata wa Yuri no Hana**
+- **Yowayowa Sensei**
 - **Mao**
-- **Saikyou no Shokugyou wa Yuusha demo Kenja demo Naku Kanteishi (Kari) Rashii desu yo?**
 
 ---
-🕒 **JAM UPDATE:** Sabtu, 11 April 2026 pukul 19:00 WIB
+🕒 **JAM UPDATE:** Sabtu, 11 April 2026 pukul 22:00 WIB
 🔄 *Otomatis update 7x sehari*
 
 
@@ -29,10 +29,10 @@
 - **Bonobono (TV 2016)**
 - **Hokuto no Ken: Fist of the North Star**
 - **Kamiina Botan, Yoeru Sugata wa Yuri no Hana**
+- **Yowayowa Sensei**
 - **Mao**
-- **Saikyou no Shokugyou wa Yuusha demo Kenja demo Naku Kanteishi (Kari) Rashii desu yo?**
 
 ---
-🕒 **JAM UPDATE:** Sabtu, 11 April 2026 pukul 19:00 WIB
+🕒 **JAM UPDATE:** Sabtu, 11 April 2026 pukul 22:00 WIB
 🔄 *Otomatis update 7x sehari*
 
