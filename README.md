@@ -14,7 +14,7 @@
 - **Sazae-san**
 
 ---
-🕒 **JAM UPDATE:** Minggu, 12 April 2026 pukul 13:00 WIB
+🕒 **JAM UPDATE:** Minggu, 12 April 2026 pukul 16:00 WIB
 🔄 *Otomatis update 7x sehari*
 
 
@@ -33,6 +33,6 @@
 - **Sazae-san**
 
 ---
-🕒 **JAM UPDATE:** Minggu, 12 April 2026 pukul 13:00 WIB
+🕒 **JAM UPDATE:** Minggu, 12 April 2026 pukul 16:00 WIB
 🔄 *Otomatis update 7x sehari*
 
