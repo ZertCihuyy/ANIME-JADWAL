@@ -14,7 +14,7 @@
 - **Ichijouma Mankitsugurashi!**
 
 ---
-🕒 **JAM UPDATE:** Senin, 13 April 2026 pukul 01:00 WIB
+🕒 **JAM UPDATE:** Senin, 13 April 2026 pukul 04:00 WIB
 🔄 *Otomatis update 7x sehari*
 
 
@@ -33,6 +33,6 @@
 - **Ichijouma Mankitsugurashi!**
 
 ---
-🕒 **JAM UPDATE:** Senin, 13 April 2026 pukul 01:00 WIB
+🕒 **JAM UPDATE:** Senin, 13 April 2026 pukul 04:00 WIB
 🔄 *Otomatis update 7x sehari*
 
