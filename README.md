@@ -4,6 +4,7 @@
 
 - **Kumarba Season 3**
 - **Tomica to Tom (TV)**
+- **Shou 3 Ashibe QQ Goma-chan**
 - **Onegai AiPri**
 - **Manul no Yuube**
 - **Mahou no Shimai Lulutto Lilly**
@@ -11,10 +12,9 @@
 - **Koupen-chan**
 - **Chibi Maruko-chan (1995)**
 - **Sazae-san**
-- **Maid-san wa Taberu dake**
 
 ---
-🕒 **JAM UPDATE:** Minggu, 12 April 2026 pukul 10:00 WIB
+🕒 **JAM UPDATE:** Minggu, 12 April 2026 pukul 13:00 WIB
 🔄 *Otomatis update 7x sehari*
 
 
@@ -23,6 +23,7 @@
 
 - **Kumarba Season 3**
 - **Tomica to Tom (TV)**
+- **Shou 3 Ashibe QQ Goma-chan**
 - **Onegai AiPri**
 - **Manul no Yuube**
 - **Mahou no Shimai Lulutto Lilly**
@@ -30,9 +31,8 @@
 - **Koupen-chan**
 - **Chibi Maruko-chan (1995)**
 - **Sazae-san**
-- **Maid-san wa Taberu dake**
 
 ---
-🕒 **JAM UPDATE:** Minggu, 12 April 2026 pukul 10:00 WIB
+🕒 **JAM UPDATE:** Minggu, 12 April 2026 pukul 13:00 WIB
 🔄 *Otomatis update 7x sehari*
 
