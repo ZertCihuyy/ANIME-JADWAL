@@ -11,10 +11,10 @@
 - **Meitantei Precure!**
 - **Koupen-chan**
 - **Chibi Maruko-chan (1995)**
-- **Sazae-san**
+- **Ichijouma Mankitsugurashi!**
 
 ---
-🕒 **JAM UPDATE:** Minggu, 12 April 2026 pukul 22:00 WIB
+🕒 **JAM UPDATE:** Senin, 13 April 2026 pukul 01:00 WIB
 🔄 *Otomatis update 7x sehari*
 
 
@@ -30,9 +30,9 @@
 - **Meitantei Precure!**
 - **Koupen-chan**
 - **Chibi Maruko-chan (1995)**
-- **Sazae-san**
+- **Ichijouma Mankitsugurashi!**
 
 ---
-🕒 **JAM UPDATE:** Minggu, 12 April 2026 pukul 22:00 WIB
+🕒 **JAM UPDATE:** Senin, 13 April 2026 pukul 01:00 WIB
 🔄 *Otomatis update 7x sehari*
 
